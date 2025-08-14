@@ -17,4 +17,4 @@
 ## Contact me
 
 Mail: [timeonthwo@gmail.com](mailto:timeonthwo@gmail.com)  
-Group of What's app: [add the group](https://chat.whatsapp.com/BgXB3icDn7WHRdurSlgWUG?mode=ac_t)  
+Group of What's app: [join the group chat](https://chat.whatsapp.com/BgXB3icDn7WHRdurSlgWUG?mode=ac_t)  
